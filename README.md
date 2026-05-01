@@ -1,1 +1,1 @@
-aqsaimtiaz1122.github.io
+https://aqsaimtiaz1122.github.io/day-1-portfolio/
